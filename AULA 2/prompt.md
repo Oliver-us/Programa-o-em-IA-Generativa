@@ -1,0 +1,1 @@
+Explique o que é IA Generativa.
